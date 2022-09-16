@@ -1,3 +1,6 @@
+![tata](https://user-images.githubusercontent.com/27211670/190601774-db1cbc4d-0daa-4853-a890-ebc6c15895ab.jpg)
+
+
 # TATA Data Visualisation Empowering Business with Effective Insights
 ![tataiq](https://user-images.githubusercontent.com/27211670/185741456-5b83cdef-ff9e-49e4-895f-2a543dad2dc7.jpg)
 
